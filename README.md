@@ -1,2 +1,4 @@
 # hello-world
 learning github
+I am simply here to learn what I can and hopefully make my newfound skills useful in this worldwideweb. Opening this account and becoming familiar with a computer again are where I have decided to start. I am a 36yo mother of 2 beautiful daughters. My oldest is 18 & my youngest is 15. Their birthdays are coming up on the 22nd & 23rd of May. I have been disabled since the age of 23. I have been a mother & wife, but little else for years. It has had it's rewards, but in turn, I have had very little left to give myself. I am sure many parents go through this. In fact, I believe I am going through the aptly named "Empty Nester" syndrome this past year. The upside is, I've managed to turn a negative into a positive & here I sit. Improving my life. Working better as a whole, even if I am not yet working ( a whole other topic). Wish Me Luck!!
+
